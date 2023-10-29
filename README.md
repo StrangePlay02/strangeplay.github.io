@@ -1,1 +1,3 @@
-# strangeplay.github.io
+# Karangan 
+
+# Tentang Kekastaan Masyarakat Kita
