@@ -1,7 +1,4 @@
-# Karangan 
-
-# Tentang Kekastaan Masyarakat Kita
-
+# Sang Sinar
 
 # Empayar
 Antara dua empayar aku suka banding: Uthmaniyah dgn Rusia. Aku terkejut camne Uthmaniyah bole bertahan raja mutlak sampai empayar tu runtuh. Kalau banding dengan Rusia, dia pun empayar, tapi mcm kebanyakan empayar (e.g., Perancis), at one point, orang dia sendiri geram dengan raja yang tak kisah langsung kebajikan rakyat. Duk gi berperang nak "luaskan kuasa", suh orang sembah dan puji dia ngan kerabat sedangkan hidup sendiri tak seberapa. Lama2 jadila mcm Rusia tahun 1917: raja dijatuhkan dari ibu negara dia. Tapi menariknya empayar dia masih bertahan, cuma dah tak lagi dilihat sebagai "empayar" sebab tak dikuasai oleh satu individu (yakni 'raja'), tapi satu badan berkuasa yang boleh berubah tangan kepada yang bukan anak beranak. Kat Siberia hujung sana masih dalam "Rusia," cuma dah tak dikira "subjek" Tsar. Uthmaniyah pula, sampai runtuh rakyat "akar" dia (orang Turki) tak pernah cuba gulingkan sultan tu sendiri. Sebab sultan dia dapat jaga kebajikan orang2 dekat Istanbul ke? Part ni yang aku rasa kita bole reflect diri sendiri: aku rasa ada sesuatu elemen tentang Islam yang membolehkan rakyat taat tak berbelah bahagi kepada penguasa, walaupun rakyat2 tu hidup daif dan miskin.
